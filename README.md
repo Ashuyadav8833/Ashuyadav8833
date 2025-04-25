@@ -29,7 +29,6 @@
 
 ## 📫 Let's Connect:
 - LinkedIn: [linkedin.com/in/ashu](https://www.linkedin.com/in/ashutosh-yadav-39079430b)
-- GitHub: [github.com/Ashuyadav8833](https://github.com/Ashuyadav8833)
 - Instagram: [instagram.com/ashu_yadav_8833](https://www.instagram.com/ashu_yadav_8833?igsh=dDN5M2pyMHU3Mm5n)
 
 ---
